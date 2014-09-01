@@ -1,7 +1,7 @@
 TenBookChallenge 2014
 =====================
 
-_Disclaimer: I have tried to find a legal free copies of these books. The ones that are out of copyright, are linked to a good source. The ones I couldn't find for free, have been linked to an Amazon page with my affiliate code (help a student out). The ones I couldn't find either way, are linked to [OCLC WorldCat](http://www.worldcat.org/). If you find legal free copies, do let me know. I can update this list as such._
+_Disclaimer: The out of copyright books are linked to a good source. The ones I couldn't find for free legal access, have been linked to an Amazon page with my affiliate code (help a student out). The ones I couldn't find either way, are linked to [OCLC WorldCat](http://www.worldcat.org/). If you find legal free copies, do let me know. I can update this list as such._
 
 I was nominated by Tushar Acharya ([@GujjuComedian](http://twitter.com/gujjucomedian)) to list ten books that I have loved reading, or have impacted me significantly, or have changed my life (or... you get the point). Here are some of my favorites over the years.
 
